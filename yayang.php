@@ -1,5 +1,1 @@
-# u wut m8
-# kate x rd
-# kate x tito fredo
-# kate x efren
-# playgirl :O
+# do you like croissants? na.a koy extra diri @_@
