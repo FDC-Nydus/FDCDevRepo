@@ -1,1 +1,1 @@
-# this is the registration file
+# this is the registrations oks file
